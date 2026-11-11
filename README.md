@@ -4,4 +4,4 @@
 
 ### 信箱
 :mailbox:ikun125300802@gmail.com\
-:mailbox_closeed:414421103@cloud.fju.edu.tw
+:mailbox_closed:414421103@cloud.fju.edu.tw
