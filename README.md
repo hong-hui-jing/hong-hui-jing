@@ -1,6 +1,6 @@
 ### 經歷
 :school:高雄市立瑞祥高級中學\
-:school_satchel:天主教輔仁大學統計資訊學系
+:school_satchel:天主教輔仁大學統計資訊學系(現在)
 
 ### 信箱
 :mailbox:ikun125300802@gmail.com\
